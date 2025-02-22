@@ -42,8 +42,7 @@ Join thousands of players using **Blox Fruits Script** to **become the strongest
 | No Ban Risk       | 🛡 Secure        | ⚠️ Risky    |  
 | Regular Updates   | 🔄 Always        | ❌ Rare      |  
 | Custom UI         | 🎨 Fully Customizable | ❌ Basic  |  
-
----  
+auto farm money
 
 ## 🔥 **Key Features**  
 
